@@ -1,0 +1,1 @@
+# Krasnovotsk.github.io
